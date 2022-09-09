@@ -34,10 +34,10 @@ M-62 Love story
  
  
  
- # Now Rajeswer is propper Randi you can contact rajeswer rendi 
+ # Now Rajeswer is proper Randi you can contact rajeswer rendi 
  
  
- [Whatsapp of rajeswer Randi](wa.me/+919124044557
+ [Whatsapp of rajeswer Randi](wa.me/+919124044557)
  
  # Rajeswer op # Damada op
 
